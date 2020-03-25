@@ -3,3 +3,5 @@ Draft only
 mlem mlem this is a major change
 
 omg are you gay who knows hehe
+
+this repository is used for researching purpose!
