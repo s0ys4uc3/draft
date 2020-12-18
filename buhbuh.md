@@ -4,3 +4,5 @@ What a good song!
 mitakonomonai namae rarara shiranai
 
 atsuikara rarara
+
+Atsuku sasete yukou kara alright right right
