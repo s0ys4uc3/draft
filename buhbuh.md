@@ -3,4 +3,6 @@ What a good song!
 
 mitakonomonai namae rarara shiranai
 
-sac vjp lmeo
+atsuikara rarara
+
+Atsuku sasete yukou kara alright right right
